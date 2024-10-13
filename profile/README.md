@@ -1,2 +1,2 @@
 # doubleplus
-Work in progress.
+Keep calm and work hard.
